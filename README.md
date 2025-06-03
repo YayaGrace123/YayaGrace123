@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @YayaGrace123
 - 👀 I’m tech and writing
-- 🌱 I’m currently learning Ui/Ux design
 - 💞️ I’m looking to collaborate on writing and learning design
 - 📫 How to reach me imokoyaya@gmail.com
 - I'm a very interesting human to work with.
